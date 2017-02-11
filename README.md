@@ -17,8 +17,7 @@ We were told that the value of the Edinar would remain at $1 until its market r
 FOR ALL OF US EDINARCOIN IS AN ALLEGED GREAT FRAUD
 In addition, those people who have realised upon this fact and are withdrawing their money are having their accounts (wallets) blocked by EDINARCOIN in order to prevent them from doing so, by blocking their money and the option to access it.
 WE HAVE HAD ENOUGH OF PERMITTING THIS TYPE OF FRAUDULENT BEHAVIOUR!!! And companies like this can  get off scot-free WITHOUT ANY REGULATIONS
-If you are a victim of EDINARCOIN and you want to report this fact to the authorities in Spain, you can do so by clicking on the following link:
-https://www.gdt.guardiacivil.es/webgdt/pinformar.php
+
 For other countries: https://www.interpol.int/es/Forms/Report_a_crime
 Remember that if victims like you and I don’t report this suspected cyber fraud, these alleged companies will continue taking advantage of our innocence.
 We sign this petition to request to Edinarcoin management to reimburse all of the Edinarcoin  to the people who put their trust into this project. The people who deposited their money and want to have it at their disposal. This is the reason why they put their trust in Edinarcoin. They were always told that there wouldn’t be any withdrawal limitations. But here we can see that this isn’t the case and that they have simply kept our money.
